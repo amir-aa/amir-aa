@@ -2,7 +2,6 @@
 
 ###
 
-<img align="right" height="150" src="https://filesaver.ir/download/7e34f786083548d594bdaaf0c88b743a_me.png"  />
 
 ###
 
